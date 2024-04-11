@@ -1,0 +1,1 @@
+My major is Electrical Engineering. There are many interesting course in it. Welcome to discuess with me.
